@@ -16,4 +16,4 @@ Data Analytics • Product • Technology • Business Strategy
 
 ### Connect
 
-[LinkedIn](www.linkedin.com/in/shreyanshi-jaiswal) • [GitHub](https://github.com/ShreyanshiJaiswal)
+[LinkedIn](https://www.linkedin.com/in/shreyanshi-jaiswal) • [GitHub](https://github.com/ShreyanshiJaiswal)
